@@ -1,2 +1,0 @@
-## welcom to olysa webpage.
-
